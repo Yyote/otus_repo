@@ -6,6 +6,7 @@
 
 ## Мои контакты
 
-Лещев-Романенко Андрей,
-Telegram: @leevroko
-E-mail: les@sfedu.ru
+Лещев-Романенко Андрей Васильевич
+
+- Telegram: @leevroko
+- E-mail: les@sfedu.ru
